@@ -1,4 +1,4 @@
-## 我爱伊戈尔）
+## 我爱伊戈尔👽
 
 <!--
 **Gazmanch1k3/Gazmanch1k3** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
