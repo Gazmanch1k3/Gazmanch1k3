@@ -1,5 +1,8 @@
-## 我爱伊戈尔👽
-
+# 我爱伊戈尔👽
+# I was hired as a sushi chef and I work for bananas, I'm happy with that🤣
+# Sometimes I get spoiled with coffee and pizza)
+# Мy friend is killing himself with hard substances, i'm worried about him😐
+# I still love him so much🥰
 <!--
 **Gazmanch1k3/Gazmanch1k3** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
