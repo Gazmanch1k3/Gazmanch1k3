@@ -3,6 +3,7 @@
 # Sometimes I get spoiled with coffee and pizza)
 # Мy friend is killing himself with hard substances, i'm worried about him😐
 # I still love him so much🥰
+# .github/readme/imgs/setup_repository_secret.dark.png
 <!--
 **Gazmanch1k3/Gazmanch1k3** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
